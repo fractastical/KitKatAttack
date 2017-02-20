@@ -15,7 +15,7 @@ In particular, it observed the relative difficulty that any tipping system had g
 
 "Kittens" are our lead in to a more generalized discovery mechanism, partially because, we have had several people approach us saying they believe female empowerment and free expression of sexuality are intrinsicly related.
 
-In both cases, the entry point is deliberately cute and non-threatening and there is a "tribal" and initiatory element to the full attainment of one's primal self.  
+In both cases, the entry point is deliberately cute and non-threatening and there is a "tribal" and initiatory element to the full attainment of one's primal self.  See http://www.guildofsymbols.com for more details
 
 ## How can I get started?
 
